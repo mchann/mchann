@@ -12,7 +12,7 @@
 
 
 
-- 💖 I’m currently learning **Laravel, java, javascript**
+- 💖 I’m currently learning **Laravel and javascript **
 
 - 💖 I’m Interested in **Frontend Developer**
 
