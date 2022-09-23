@@ -1,6 +1,6 @@
 ![headmaster](https://i.pinimg.com/originals/24/2e/37/242e379f970c22bf30e1689290627058.gif)
 <h1 align="center">WooPie  ,I'm Echamchan</h1>
-<h3 align="center">(n)coffe . one sunset . petals 204 🌙💐</h3>
+<h3 align="center">(n)coffee . one sunset . petals 204 🌙💐</h3>
 
 
 <img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/7d/07/a2/7d07a255678962d30d8717dcf5dbd266.gif">
