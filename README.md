@@ -18,7 +18,7 @@
 
 - 🌸 How to reach me **echaazwaputrialvianti@gmail.com**
 
-- 🍄 Fun fact **I really like painting n also like Urbanian Sketch, n looking at trees.. bcs it makes me calm and relaxed,n I also really like things about Japaaann 🎐⛩️..**
+- 🍄 Fun fact **I really like painting n also like Urbanian Sketch, I also really like things about Japaaann 🎐⛩️..**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
