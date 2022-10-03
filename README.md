@@ -14,7 +14,7 @@
 
 - 💖 I’m currently learning **Laravel and javascript**
 
-- 💖 I’m Interested in **Frontend Developer**
+- 💖 I’m Interested in **Frontend programmng**
 
 - 🌸 How to reach me **echaazwaputrialvianti@gmail.com**
 
