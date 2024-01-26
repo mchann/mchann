@@ -18,7 +18,7 @@
 
 - 🌸 How to reach me **echaazwaputrialvianti@gmail.com**
 
-- 🌸 My real name Rezha Ajwa but, u can call me **moo** 
+- 🌸 My real name Rezha Ajwa p.a. but, u can call me **moochan** 
 
 - 🍄 Fun fact **I really like painting w watercolor n Urbanian Sketch,
 I also really like things about Japaaann 🎐⛩️..**
