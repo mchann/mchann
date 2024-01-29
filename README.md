@@ -1,7 +1,7 @@
 ![headmaster](https://i.pinimg.com/originals/24/2e/37/242e379f970c22bf30e1689290627058.gif)
 <h1 align="center">WooPie 👋🏻 ,I'm Echamchan</h1>
 <h3 align="center">(n)coffee . one sunset . petals 204 🌙💐</h3>
-https://github.com/mchann/mchann/assets/109565624/9ffcaa24-8b42-4112-8abd-df32fc47a0b2
+
 
 <img align="right" alt="Coding" width="400" src="https://i.pinimg.com/originals/7d/07/a2/7d07a255678962d30d8717dcf5dbd266.gif">
 
