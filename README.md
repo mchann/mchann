@@ -18,7 +18,7 @@
 
 - 🌸 How to reach me **echaazwaputrialvianti@gmail.com**
 
-- 🌱  I'm currently working on improving my programming skills and deepening my knowledge of IoT!
+- 🌱  and also I'm currently working on improving my programming skills and deepening my knowledge of IoT!
 
 - 🍄 Fun fact **I really like painting w watercolor n Urbanian Sketch,
 I also really like things about Japaaann 🎐⛩️..**
