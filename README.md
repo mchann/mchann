@@ -14,7 +14,7 @@
 
 - 💖 I’m currently learning **Javascript and Backend Dev**
 
-- 💖 I’m Interested in **IoT**
+- 💖 I’m Interested in Internet of Things**IoT**
 
 - 🌸 How to reach me **echaazwaputrialvianti@gmail.com**
 
