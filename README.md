@@ -12,7 +12,7 @@
 
 
 
-- 💖 I’m currently learning **Javascript and Backend Dev**
+- 💖 I’m currently learning **Javascript n Backend Dev things**
 
 - 💖 I’m Interested in Internet of Things (**IoT**)
 
