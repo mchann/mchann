@@ -7,7 +7,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=echamchan&label=Profile%20views&color=0e75b6&style=flat" alt="echamchan" /> </p>
 
-<p align="left"> <a href="https://twitter.com/chaamchn" target="blank"><img src="https://img.shields.io/twitter/follow/chaamchn?logo=twitter&style=for-the-badge" alt="chaamchn" /></a> </p>
+<p align="left"> <a href="https://instagram.com/echaacch_" target="blank"><img src="https://img.shields.io/twitter/follow/chaamchn?logo=twitter&style=for-the-badge" alt="echaacch_" /></a> </p>
 
 
 
