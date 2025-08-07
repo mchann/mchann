@@ -16,8 +16,6 @@
 
 - 💖 I’m Interested in Internet of Things (**IoT**)
 
-- 🌸 How to reach me **echaazwaputrialvianti@gmail.com**
-
 - 🌱  and also I'm currently working on improving my programming skills and deepening my knowledge of IoT!
 
 - 🍄 Fun fact **I really like painting w watercolor n Urbanian Sketch,
